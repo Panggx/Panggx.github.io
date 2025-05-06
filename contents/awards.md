@@ -1,3 +1,4 @@
-- 校级一等奖学金, 2022.  
-
-- Outstanding Graduation Thesis, XXX University, 2023. 
+- Third Prize in the National College Students Mathematics Competition (Non - Mathematics Category), 2024.
+- Outstanding Student Scholarship, USTC , 2022.                                                 
+- Outstanding Student Scholarship (Bronze Award), USTC , 2023.                                                     
+- Rose Endeavor Award, USTC , 2023.                                                             
